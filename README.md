@@ -1,1 +1,1 @@
-# luck
+# goodluck
